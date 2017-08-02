@@ -1,1 +1,0 @@
-# yakymechko.github.io
